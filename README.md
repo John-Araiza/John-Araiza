@@ -2,7 +2,7 @@
 
 - I like futbol (my favorite teams are San Diego FC and Liverpool)
 - I like taking pictures
-- I enjoy learning new things, I'm currently into zeros' and ones
+- I enjoy learning new things, I'm currently into zeros' and ones'
 
 
 <!--
