@@ -3,7 +3,7 @@
 - I like fùtbol (my favorite teams are San Diego FC and Liverpool FC)
 - I like taking pictures
 - I enjoy learning new things, I'm currently into zeros' and ones'
-- Oh, how can I forget GO LAKERS!!
+- Oh, how can I forge;  GO LAKERS!!
 
 
 <!--
